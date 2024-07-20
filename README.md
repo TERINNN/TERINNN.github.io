@@ -1,1 +1,0 @@
-# TERINNN.github.io
